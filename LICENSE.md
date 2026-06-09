@@ -1,4 +1,4 @@
-#  
+#  plants vs brainrots Script no-ban offers the most advanced plants vs brainrots Script, with infinite resources and no clip. Perfect for dominating
 
 
 
